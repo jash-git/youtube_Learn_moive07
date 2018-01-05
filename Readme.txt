@@ -152,7 +152,9 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=XNYOS8pwk9Y&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=26
 	18.3 Awesome Life Hacks YOU SHOULD KNOW[戶外安全點火器(電池+鐵絲/鎢絲),手指陀螺變電風扇,手機電動搖桿]
 		https://www.youtube.com/watch?v=sMLZ3Ws9R88&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=27
-	
+	19.TOP 5 Awesome Life Hacks for DC Motor
+		https://www.youtube.com/watch?v=-ad5QJ52qTA&index=28&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+		
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
 原來電鑽有這麼多妙用，省時省力，不知道太可惜了
