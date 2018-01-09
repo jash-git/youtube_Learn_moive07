@@ -154,8 +154,12 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=sMLZ3Ws9R88&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=27
 	19.TOP 5 Awesome Life Hacks for DC Motor[兩個直流馬達變手搖電風扇,吸塵器,直流馬達變遙控電燈開關,電動陀螺,直流馬達+削鉛筆刀片變切割機]
 		https://www.youtube.com/watch?v=-ad5QJ52qTA&index=28&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	20.3 Awesome Life Hacks
+	20.3 Awesome Life Hacks[自製筆電散熱風扇,自製4用小型螺絲起子]
 		https://www.youtube.com/watch?v=wB-N0nMAhoY&index=30&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	21.3 Awesome Life Hacks YOU SHOULD KNOW
+		https://www.youtube.com/watch?v=-Hzz4ckcvT0&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=31
+		
+		
 		
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
