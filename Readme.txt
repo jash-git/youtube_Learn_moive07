@@ -156,8 +156,10 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=-ad5QJ52qTA&index=28&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	20.3 Awesome Life Hacks[自製筆電散熱風扇,自製4用小型螺絲起子]
 		https://www.youtube.com/watch?v=wB-N0nMAhoY&index=30&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	21.3 Awesome Life Hacks YOU SHOULD KNOW
+	21.3 Awesome Life Hacks YOU SHOULD KNOW[自製鑽孔灰塵收納器,自製活動板手]
 		https://www.youtube.com/watch?v=-Hzz4ckcvT0&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=31
+	22.6 LIFE HACKS WITH FORK[叉子變手機架,叉子變蠟燭台]
+		https://www.youtube.com/watch?v=ZR2UA8e0E84&index=32&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 		
 		
 		
