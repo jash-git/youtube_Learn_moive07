@@ -160,7 +160,8 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=-Hzz4ckcvT0&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=31
 	22.6 LIFE HACKS WITH FORK[叉子變手機架,叉子變蠟燭台]
 		https://www.youtube.com/watch?v=ZR2UA8e0E84&index=32&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-		
+	23.	3 Awesome Smartphone Life Hacks[]
+		https://www.youtube.com/watch?v=oIc3AoeuC_M&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=34
 		
 		
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
