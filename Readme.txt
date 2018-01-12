@@ -160,10 +160,15 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=-Hzz4ckcvT0&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=31
 	22.6 LIFE HACKS WITH FORK[叉子變手機架,叉子變蠟燭台]
 		https://www.youtube.com/watch?v=ZR2UA8e0E84&index=32&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	23.	3 Awesome Smartphone Life Hacks[]
+	23.3 Awesome Smartphone Life Hacks[蠟燭透過太陽能板為手機充電,大燈泡變手機投影機,將USB線變成電話線的形狀方便收納]
 		https://www.youtube.com/watch?v=oIc3AoeuC_M&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=34
-		
-		
+	24.Amazing Life Hacks YOU SHOULD KNOW
+		https://www.youtube.com/watch?v=biTtGrtnZNE&index=35&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	25.3 Awesome Life Hacks
+		https://www.youtube.com/watch?v=vLVL1JJVJ3g&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=36
+	26.4 Awesome Life Hacks YOU SHOULD KNOW[]
+		https://www.youtube.com/watch?v=o8wfd3niGYI&index=37&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
 原來電鑽有這麼多妙用，省時省力，不知道太可惜了
