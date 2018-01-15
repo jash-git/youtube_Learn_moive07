@@ -166,8 +166,12 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=biTtGrtnZNE&index=35&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	25.3 Awesome Life Hacks
 		https://www.youtube.com/watch?v=vLVL1JJVJ3g&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=36
-	26.4 Awesome Life Hacks YOU SHOULD KNOW[]
+	26.4 Awesome Life Hacks YOU SHOULD KNOW[銲槍將透明塑膠袋變密封袋,電鑽變電洞削鉛筆機]
 		https://www.youtube.com/watch?v=o8wfd3niGYI&index=37&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	27.2 Amazing Life Hacks with Magnets
+		https://www.youtube.com/watch?v=5T3nwm6GcPc&index=40&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	28.Top 10 Awesome Life Hacks for Drill Machine[輕鬆收納鑽頭的方法,]
+		https://www.youtube.com/watch?v=7RBuzkHpcAQ&index=41&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
