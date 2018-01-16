@@ -172,8 +172,41 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=5T3nwm6GcPc&index=40&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	28.Top 10 Awesome Life Hacks for Drill Machine[輕鬆收納鑽頭的方法,電鑽變磨刀石,電鑽變電動起子,電動削鉛筆機反向操作,鋸斷螺絲的標準SOP,電鑽變簡易打蛋器,鐵絲綑綁密技]
 		https://www.youtube.com/watch?v=7RBuzkHpcAQ&index=41&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	29.Top 10 Awesome Smartphone Life Hacks[]
+	29.Top 10 Awesome Smartphone Life Hacks[手機電動搖桿,指尖陀螺辯手機架,蠟燭手機充電(熱能轉化電能),束帶變手機架,利用手機相機確定電視遙控器電池是否正常,利用紙板自製手機賽專遊戲專用把手]
 		https://www.youtube.com/watch?v=FG-ZVC65nKw&index=42&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	30.DIY FIDGET SPINNERS! 3 Ways To Make Electric Fidget Spinner
+		https://www.youtube.com/watch?v=5LZAvvXKOaM&index=43&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	31.3 Awesome Life Hacks for Matches
+		https://www.youtube.com/watch?v=NC9t4bHHxpM&index=44&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	32.Top 5 Awesome Life Hacks for Zip Ties
+		https://www.youtube.com/watch?v=12iIW8RB-0k&index=45&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	33.4 Awesome Life Hacks for Matches
+		https://www.youtube.com/watch?v=d57k9ua-KGA&index=47&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	34.3 CRAZY Life Hacks With Glue Gun
+		https://www.youtube.com/watch?v=IJr6c_dwNP4&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=48
+	35.3 Awesome Life Hacks YOU SHOULD KNOW
+		https://www.youtube.com/watch?v=4xQiQouPGTE&index=49&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	36.2 Awesome ideas
+		https://www.youtube.com/watch?v=WMmUuC3THCU&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=50
+	37.3 Awesome Life Hacks with Fidget Spinner	
+		https://www.youtube.com/watch?v=jJ8BTj0yICo&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=51
+	38.3 Awesome Life Hacks for Battery
+		https://www.youtube.com/watch?v=PVL3pYPNVrQ&index=52&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	39.4 Awesome Hot Glue Gun Life Hacks
+		https://www.youtube.com/watch?v=ED7b4zwIPdU&index=53&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	40.5 Awesome Life Hacks With Soldering Iron[迴紋針+烙鐵=剝線鉗,刀片+烙鐵=塑膠切割刀,鐵尺+烙鐵=密封袋製造器,烙鐵=熱熔槍,電鑽+砂紙=烙鐵頭清潔機,]
+		https://www.youtube.com/watch?v=-JF7yPyFoVk&index=54&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	41.3 Amazing Life Hacks With Lighters
+		https://www.youtube.com/watch?v=4TAqB-lvR_Q&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=55
+	42.3 Awesome Life Hacks
+		https://www.youtube.com/watch?v=aKJjmKIgvqM&index=56&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	41.Top 10 Amazing Life Hacks for Eraser
+		https://www.youtube.com/watch?v=INtqDfQKm3E&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=57
+	42.9 Awesome Life Hacks for Battery[自製9V LED照明燈,9V電池扣變身鑰匙收納扣,鐵絲+9V=火柴點火器,9V電池+鐵絲=保麗龍切割器,自製照明帽]
+		https://www.youtube.com/watch?v=uNp8wqzznxk&index=73&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+		
+	
+	
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
