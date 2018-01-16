@@ -170,8 +170,10 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=o8wfd3niGYI&index=37&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	27.2 Amazing Life Hacks with Magnets
 		https://www.youtube.com/watch?v=5T3nwm6GcPc&index=40&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	28.Top 10 Awesome Life Hacks for Drill Machine[輕鬆收納鑽頭的方法,]
+	28.Top 10 Awesome Life Hacks for Drill Machine[輕鬆收納鑽頭的方法,電鑽變磨刀石,電鑽變電動起子,電動削鉛筆機反向操作,鋸斷螺絲的標準SOP,電鑽變簡易打蛋器,鐵絲綑綁密技]
 		https://www.youtube.com/watch?v=7RBuzkHpcAQ&index=41&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	29.Top 10 Awesome Smartphone Life Hacks[]
+		https://www.youtube.com/watch?v=FG-ZVC65nKw&index=42&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
